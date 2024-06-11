@@ -1,4 +1,4 @@
-> ### I'm Antony's girlfriend
+> ### eu sou a namorada do antony 
 >
 > I'm seventeen years old and I'm in the second grade of high school.
 > 
