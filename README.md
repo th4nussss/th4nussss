@@ -1,4 +1,4 @@
-> ### eu sou a namorada do antony 
+> ### I'm Tone's girlfriend
 >
 > I'm seventeen years old and I'm in the second grade of high school.
 > 
